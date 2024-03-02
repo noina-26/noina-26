@@ -1,7 +1,6 @@
 - 👋 Hi, I’m Noina
 - 👀 I’m interested in technology
 - 🌱 I’m currently learning btech computer science
-- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ig @noiinnaa
 - 🌚 Hobbies:dancing, writing journal
 
